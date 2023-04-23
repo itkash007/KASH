@@ -1,2 +1,2 @@
-# KASH
-All About I.T.
+# kash
+i like ps lol
